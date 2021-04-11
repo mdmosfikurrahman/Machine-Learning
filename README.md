@@ -5,4 +5,4 @@ For more details please contact.
 
 Email: mdmosfikurrahman.cse@gmail.com
 
-WhatsApp: +880 1788-894709
+WhatsApp: wa.me/8801788894709
